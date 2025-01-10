@@ -59,7 +59,7 @@
 If you find this project insightful and feel my skills align with your requirements, I would love to connect with you:
 
 - **Name:** Jayesh Rokade  
-- **Email:** [jayeshrokade@example.com](jayeshrokade.hire@gmail.com)  
+- **Email:** [jayeshrokade.hire@gmail.com](jayeshrokade.hire@gmail.com)  
 - **LinkedIn:** [Jayesh Rokade](https://in.linkedin.com/in/jayesh-rokade?original_referer=https%3A%2F%2Fwww.bing.com%2F)
 
 I am actively seeking new opportunities and am open to contributing my expertise to your team. If you're hiring or know of any suitable roles, please feel free to reach out. Let's work together to make an impact!
